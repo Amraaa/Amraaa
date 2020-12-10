@@ -2,6 +2,9 @@
 
 
 
+![](https://raw.githubusercontent.com/Amraaa/Amraaa/gifcurlyhair.gif)
+
+
 - 😄 My Pronouns: She/Her
 - 🌱 I am currently studying programming and using all my free time to learn more and more
 - 💻 Languages: HTML, CSS, JavaScript, Java, Mysql,
