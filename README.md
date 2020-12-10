@@ -2,7 +2,7 @@
 
 
 
-![](https://raw.githubusercontent.com/Amraaa/Amraaa/gifcurlyhair.gif)
+![](https://raw.githubusercontent.com/Amraaa/Amraaa/master/gifcurlyhair.gif)
 
 
 - 😄 My Pronouns: She/Her
